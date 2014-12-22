@@ -35,9 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Sermons on St Peter. By Robert Gomersall Bachelar in DivinitieGomersall, Robert, 1602-1646?1634Appro
+Imprimatur. Tho: Weekes. Cap. domest. Episc. Lond.
+1. TO Sr IOHN STRANGVVAYES OF MELBVRIE KNIGHT.
+1 Peter 2.13. Submit your selves to every ordinance of man for the Lords sake, whether it bee to the
 #####Body#####
-Sermons on St Peter. By Robert Gomersall Bachelar in DivinitieGomersall, Robert, 1602-1646?1634Appro
+ST. PETER told these brethren before, that the Gentiles spake evill of them as of evill doers; eithe1. Peter 2. 13.—To every ordinance (〈 in non-Latin alphabet 〉) of man, whether it be to the King, as1. Pet. 2. 13.To every Ordinance 〈 in non-Latin alphabet 〉 (i.) Creature of man.WE have heard the Di1. Peter 2. 13.—, for the Lords sake:15. For, so is the will of God.WE have already shewed you what 1 Peter 2. 14.For the punishment of Evill-doers, and for the praise of them that doe well.WHen Isaac1 Pet. 2. 15.That with well doing ye may put to silence the ignorance of foolish men.THE motives by 1. Pet. 2. 16.As free and not using your liberty for a cloake of maliciousnesse, but as the Servants1 Pet. 2. 16.As free, and not using your liberty for a cloak of maliciousnesse, but as the servants 
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
